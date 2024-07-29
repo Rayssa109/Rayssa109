@@ -1,1 +1,1 @@
-oi amigos, eu sou the ray e é uma honra te-los aqui comigo!
+oi amigos, eu sou the rayy e é uma honra te-los aqui comigo!
